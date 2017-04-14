@@ -4,6 +4,6 @@ Ich haben von Ihrem Unternehmen einen unerwünschten Zettel in meinem Briefkaste
 
 Wenn sich das wiederholt, werde ich mit einer Klage auf Unterlassung, Schadensersatz oder mit einer Abmahnung dagegen vorgehen.
 
-Vielen Dank für Ihr Verständnis und Professionalität!
+Vielen Dank für Ihr Verständnis und Ihre Professionalität!
 
 Nikolay Georgiev
