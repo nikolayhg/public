@@ -12,4 +12,4 @@ Nikolay Georgiev
 
 # Review - Facebook/Maps
 
-Ich habe vom Unternehmen einen unerwünschten Zettel in meinem Briefkasten erhalten, obwohl der Aufkleber "KEINE Werbung – keine Handzettel, keine Wurfsendungen, keine kostenlosen Zeitungen und Wochenblätter" auf meinem Briefkasten steht. Deswegen 1 Stern für SPAM. Wenn ich die Dienstleistungen vom Unternehmen zukünftig nutze, werde ich meinen Review aktualisieren.
+Ich habe vom Unternehmen einen unerwünschten Zettel in meinem Briefkasten erhalten, obwohl der Aufkleber "KEINE Werbung – keine Handzettel, keine Wurfsendungen, keine kostenlosen Zeitungen und Wochenblätter" auf meinem Briefkasten steht. Deswegen 1 Stern für SPAM. Wenn ich die Dienstleistungen oder Produkte dieses Unternehmens zukünftig nutze werde, werde ich meinen Review anpassen.
