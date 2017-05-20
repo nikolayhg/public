@@ -2,7 +2,7 @@
 
 Sehr geehrte Damen und Herren,
 
-Ich habe von Ihrem Unternehmen einen unerwünschten Zettel in meinem Briefkasten erhalten, obwohl der Aufkleber "KEINE Werbung – keine Handzettel, keine Wurfsendungen, keine kostenlosen Zeitungen und Wochenblätter" auf meinem Briefkasten steht.
+Ich habe von Ihrem Unternehmen einen unerwünschten Zettel in meinem Briefkasten erhalten, obwohl der Aufkleber "KEINE Werbung – keine Handzettel, keine Wurfsendungen, keine kostenlosen Zeitungen und Wochenblätter" auf meinem Briefkasten steht. Deswegen habe ich Ihrem Unternehmen negative Bewertungen auf mehrere Webseiten geschrieben.
 
 Wenn sich das wiederholt, werde ich mit einer Klage auf Unterlassung, Schadensersatz oder mit einer Abmahnung dagegen vorgehen.
 
